@@ -1,3 +1,3 @@
 # Contact information
 
-please mailto: maolifecare@gmail.com
+please mailto: lifeoverflowtw@gmail.com
